@@ -1,1 +1,1 @@
-https://sam3360.github.io/TermsAndConditionsModuForgeX_TechnovationEdition/
+click - https://sam3360.github.io/TermsAndConditionsModuForgeX_TechnovationEdition/
